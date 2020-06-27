@@ -1,5 +1,7 @@
 # Actualism and Actual Freedom Guide
 
+![](https://zulip-avatars.s3.amazonaws.com/25088/realm/logo.png?version=3){.ui .medium .centered .image}
+
 ## **Introduction**
 
 Several years ago, an Australian man named Richard chanced upon a marvellous and novel method to reach an exquisite degree of happiness and contentment. The simple method that he used, he later termed actualism. Later still, he found a way to dwell _permanently_ in a state of utter delight, stillness and peace – through a process of _self-immolation_. \(yes, it is as radical as it sounds!\) This was an _actual freedom from the human condition_.
