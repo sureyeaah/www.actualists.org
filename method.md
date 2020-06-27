@@ -85,4 +85,4 @@ There are many, many times when one falls off the horse so to speak.  When this 
 
 _-Richard_  
   
-[_http://www.actualfreedom.com.au/richard/selectedcorrespondence/sc-method5.htm_](http://www.actualfreedom.com.au/richard/selectedcorrespondence/sc-method5.htm)\_\_
+[_http://www.actualfreedom.com.au/richard/selectedcorrespondence/sc-method5.htm_](http://www.actualfreedom.com.au/richard/selectedcorrespondence/sc-method5.htm)
