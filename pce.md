@@ -161,8 +161,8 @@ _To get out of ‘stuckness’ one gets off one’s backside and does whatever o
 
 ## Actual Freedom Trust Articles on PCE
 
-[How do I induce a PCE](http://www.actualfreedom.com.au/sundry/frequentquestions/FAQ64a.htm)   
-[Richard's selected correspondence on PCEs](http://actualfreedom.com.au/richard/selectedcorrespondence/sc-pce3.htm)  
-[Various descriptions of PCEs](http://actualfreedom.com.au/actualism/others/corr-pce.htm)  
-[Pure Consciousness Experience](http://actualfreedom.com.au/library/topics/pce.htm)  
-[Attentiveness and Sensuousness and Apperceptiveness](http://www.actualfreedom.com.au/richard/articles/attentivenesssensuousnessapperceptiveness.htm)
+* [How do I induce a PCE](http://www.actualfreedom.com.au/sundry/frequentquestions/FAQ64a.htm)   
+* [Richard's selected correspondence on PCEs](http://actualfreedom.com.au/richard/selectedcorrespondence/sc-pce3.htm)  
+* [Various descriptions of PCEs](http://actualfreedom.com.au/actualism/others/corr-pce.htm)  
+* [Pure Consciousness Experience](http://actualfreedom.com.au/library/topics/pce.htm)  
+* [Attentiveness and Sensuousness and Apperceptiveness](http://www.actualfreedom.com.au/richard/articles/attentivenesssensuousnessapperceptiveness.htm)
