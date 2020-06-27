@@ -1,7 +1,6 @@
-{ siteTitle = "Example Zettelkasten"
-, author = Some "John Doe"
-, siteBaseUrl = Some "https://example.com"
+{ siteTitle = "Actualism and Actual Freedom Guide"
+, siteBaseUrl = Some "https://next.actualists.org/"
 , theme = "teal"
-, editUrl = Some "https://github.com/srid/neuron-template/edit/master/"
+, editUrl = Some "https://github.com/ActualFreedom/www.actualists.org/edit/master/"
 , mathJaxSupport = False
 }
