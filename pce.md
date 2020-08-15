@@ -47,7 +47,9 @@ You want to make yourself a bit like a child, soft and relaxed. Tell yourself yo
   
 The idea is that you want to gradually delight more and more in sensuousness, this corresponds with a 'thinning' out of the self – of 'you' until 'you' eventually go into abeyance and you are in a fairy tale wonderland of the actual world. 
 
-> I found the quiet of the morning conducive - or night-time. I would set aside an hour or two, read some of that good stuff on the AFT - then walk around my room delighting in things there. Then I would take a walk to a nearby park, all the time enjoying and appreciating this moment. Then I would come back home esp. if there were too many people. Any feelings that come up you don't suppress, but acknowledge gently and see if you can set them aside for a bit. See if you can still your mind a bit. Stop the urge to have a stream of thoughts or commentary running in your mind. I found it helpful to relax by jaw and my tongue to stop any 'sub-vocalisations' but that might just be particular to me – Srinath  
+> I found the quiet of the morning conducive - or night-time. I would set aside an hour or two, read some of that good stuff on the AFT - then walk around my room delighting in things there. Then I would take a walk to a nearby park, all the time enjoying and appreciating this moment. Then I would come back home esp. if there were too many people. Any feelings that come up you don't suppress, but acknowledge gently and see if you can set them aside for a bit. See if you can still your mind a bit. Stop the urge to have a stream of thoughts or commentary running in your mind. I found it helpful to relax by jaw and my tongue to stop any 'sub-vocalisations' but that might just be particular to me 
+>
+> – Srinath  
   
 **Step 4: Progressing gradually from feeling good to feeling perfect. Inducing a PCE proper.**   
   
@@ -57,8 +59,6 @@ You want to get into your senses and to relish and savour whatever sensory exper
   
 You move incrementally and gradually through these stages below. You are gradually 'turning up' the level of enjoyment and wonder as you do so:
 
-> "I found the quiet of the morning conducive - or night-time. I would set aside an hour or two, read some of that good stuff on the AFT - then walk around my room delighting in things there. Then I would take a walk to a nearby park, all the time enjoying and appreciating this moment. Then I would come back home esp. if there were too many people. Any feelings that come up you don't suppress, but acknowledge gently and see if you can set them aside for a bit. See if you can still your mind a bit. Stop the urge to have a stream of thoughts or commentary running in your mind. I found it helpful to relax by jaw and my tongue to stop any 'sub-vocalisations' but that might just be particular to me " – Srinath_  
-  
 **Step 4: Progressing gradually from feeling good to feeling perfect. Inducing a PCE proper.**   
   
 Okay so let's get down to actually having \(or more correctly allowing\) a PCE.  
