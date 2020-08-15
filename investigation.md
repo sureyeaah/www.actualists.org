@@ -4,13 +4,13 @@
    
 – _Vineeto_
 
-The above is important to bear in mind. For it is only by being utterly open to experiencing emotions,  that the opportunity arises to bring a sincere attentiveness to feelings and to eventually neutralise their worst effects, to **virtually** eliminate them as Vineeto puts it. 
+The above is important to bear in mind. For it is only by being utterly open to experiencing emotions,  that the opportunity arises to bring a sincere attentiveness to feelings and to eventually neutralise their worst effects, to **virtually** eliminate them as Vineeto puts it.[^naming]
 
-For it is not simply that we have feelings, **we are our feelings.** __Ultimately actual freedom is not about **ceasing to feel,** but about _**ceasing to be**_.  So it is not the case that we are trying to eliminate feelings with investigation, but simply to probe them and by doing so, progressively remove obstacles to feeling happy and harmless in this moment. We are able to stay happier for longer.  Crucially through investigating we begin to get intimate with the nature of _being_ at its very core. Through the dual processes of getting back to feeling good and investigation we will gradually see that what is standing in the way of untrammelled happiness is nothing but ourselves! In conjunction with PCEs  we begin to see that it is only through **ceasing to be**, that a permanent peace will be available to us, in this lifetime.   
+[^naming]: Usually feelings and emotions are used interchangeably on this site unless otherwise stated
+
+For it is not simply that we have feelings, **we are our feelings.** Ultimately actual freedom is not about **ceasing to feel,** but about _**ceasing to be**_.  So it is not the case that we are trying to eliminate feelings with investigation, but simply to probe them and by doing so, progressively remove obstacles to feeling happy and harmless in this moment. We are able to stay happier for longer.  Crucially through investigating we begin to get intimate with the nature of _being_ at its very core. Through the dual processes of getting back to feeling good and investigation we will gradually see that what is standing in the way of untrammelled happiness is nothing but ourselves! In conjunction with PCEs  we begin to see that it is only through **ceasing to be**, that a permanent peace will be available to us, in this lifetime.   
   
 But we are getting ahead of ourselves a bit. Simply, for now whenever there is an impediment to feeling good, as a first step, one needs to find out why one is not feeling good. This is especially the case when one has tried to feel good and failed  
-  
-_{\* Usually feelings and emotions are used interchangeably on this site unless otherwise stated}_
 
 ## **The Attitude for Investigation**
 
@@ -48,7 +48,7 @@ As you can see we've categorised the emotion as a 'bad' one. We've discovered va
   
 Shame and morality can be a particularly sinister aspects of feeling, as they can cause a 'white-out' thus preventing you from getting to the core of the emotion. Also remember to separate feelings from facts. 
 
-### **4. Going back to Neutral/Good.** 
+### **3. Going back to Neutral/Good.** 
 
 Oftentimes a bad feeling is just too intense for us to work with it or investigate it. No sooner do you start, that you just get rail-roaded by it and find yourself going in circles. If this is the case – and it often is even when you are an experienced investigator – just quit and give it more time. See if you can get back to at least feeling neutral. This is a key thing to remember if you are repeatedly struggling with emotions.  If it is a particularly intense emotion, which has a long history of triggering you, it might take several goes before you manage to make sense of it.   
   
@@ -56,7 +56,7 @@ However it is key not to simply ignore the incident and feeling once you are fee
 
 Going back to neutral \(think of it like a gear change\) is always something you can do when you need to get back to feeling good and find it difficult to do so. This intermediate step can make it much easier. 
 
-### **3. The Deep Structure of Feeling and Emotion** 
+### **4. The Deep Structure of Feeling and Emotion** 
 
 #### _a\) Themes_
 
@@ -84,7 +84,7 @@ While you cannot get rid of your feeling core prior to self-elimination, you can
   
 In the above examples I may feel that there was a powerful instinctive sense of male on male aggression and rivalry which the man stoked unwittingly or deliberately. 
 
-#### _c\) See the good feelings that are maintaining the bad feelings_
+#### _d\) See the good feelings that are maintaining the bad feelings_
 
 Once you have some familiarity with investigations and know your broad feeling themes, your basic fantasies and beliefs – then, you can start to explore the good feelings that are often responsible for shoring up the bad feelings e.g. Feeling of loneliness may be due to your venerating of feelings of love and belonging. Feelings of being dejected and ashamed may relate to your prizing of good feelings of status, pride and social respectability.  
   
