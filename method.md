@@ -22,7 +22,7 @@ Feeling good or enjoying has a range of meanings to people. What we are talking 
   
 [http://actualfreedom.com.au/sundry/frequentquestions/FAQ63a.htm](http://actualfreedom.com.au/sundry/frequentquestions/FAQ63a.htm)  
   
-_The ‘good’ feelings are those that are of a loving \(ardent feelings of profound affection and endearment\) and a compassionate \(empathetic feelings of deep sympathy and commiseration\) nature; the ‘bad feelings are those that are of a malicious \(spiteful feelings of intense hatred and resentment\) and a sorrowful \(melancholy feelings of yawning sadness and grief\) nature._
+> The ‘good’ feelings are those that are of a loving \(ardent feelings of profound affection and endearment\) and a compassionate \(empathetic feelings of deep sympathy and commiseration\) nature; the ‘bad feelings are those that are of a malicious \(spiteful feelings of intense hatred and resentment\) and a sorrowful \(melancholy feelings of yawning sadness and grief\) nature.
 
 ## Feeling Felicitous and Innocuous \( Feeling Happy and Harmless\)
 
@@ -32,11 +32,11 @@ Also it is often possible to feel happy and yet have malice on board e.g. feelin
   
 [http://actualfreedom.com.au/sundry/frequentquestions/FAQ63a.htm](http://actualfreedom.com.au/sundry/frequentquestions/FAQ63a.htm)  
   
- _The felicitous feelings are those that are of a happy and carefree \(blithesome feelings of great delight and enjoyment\) nature; the innocuous feelings are those that are of a harmless and congenial \(gracious feelings of ingenuous tranquillity and affability\) nature ...._
+> The felicitous feelings are those that are of a happy and carefree \(blithesome feelings of great delight and enjoyment\) nature; the innocuous feelings are those that are of a harmless and congenial \(gracious feelings of ingenuous tranquillity and affability\) nature ....
 
 [http://actualfreedom.com.au/sundry/frequentquestions/FAQ63a.htm](http://actualfreedom.com.au/sundry/frequentquestions/FAQ63a.htm)
 
-_The felicitous/innocuous feelings are in no way docile, lack-lustre affections ... in conjunction with sensuosity they make for an extremely forceful/ potent combination as, with all of the affective energy channelled into being as happy and harmless as is humanly possible \(and no longer being frittered away on love and compassion/ malice and sorrow\), the full effect of ‘me’ at the core of ‘my’ being – which is ‘being’ itself – is dynamically enabled for one purpose and one purpose alone. \(...\)   
+> The felicitous/innocuous feelings are in no way docile, lack-lustre affections ... in conjunction with sensuosity they make for an extremely forceful/ potent combination as, with all of the affective energy channelled into being as happy and harmless as is humanly possible \(and no longer being frittered away on love and compassion/ malice and sorrow\), the full effect of ‘me’ at the core of ‘my’ being – which is ‘being’ itself – is dynamically enabled for one purpose and one purpose alone. \(...\)   
   
 The actualism method is not about undermining the passions ... on the contrary, it is about directing all of that affective energy into being the felicitous/innocuous feelings \(that is, ‘me’ at the core of ‘my’ being, which is ‘being’ itself\) in order to effect a deliberate imitation of the actual, as evidenced in a PCE \[a pure consciousness experience\], so as to feel as happy and as harmless \(as free of malice and sorrow\) as is humanly possibly whilst remaining a ‘self’.   
   
@@ -45,7 +45,6 @@ Such imitative felicity/ innocuity, in conjunction with sensuosity, readily evok
 ## The Wide and Wondrous Path
 
 The actualism method is also called the 'wide and wondrous path'. It is simple and accessible to everyone. It does not require a sophisticated intellect, an understanding of arcane and esoteric mystico-religious teachings or a Olympian level of mediative skill. It is something that you'll want to have fun with and enjoy doing as soon as you start. There are no 'dark nights', no hours of sitting on a cushion trying to forget about that cramp on your leg.   
-  
 Furthermore the path and the destination are one and the same. From the get-go one is emulating the crackling electric wonder of the universe, its radiant benevolence – albeit in tiny ways. At the journeys end you realise that destination was embedded within the path all along.   
   
 [http://actualfreedom.com.au/actualism/path2.htm](http://actualfreedom.com.au/actualism/path2.htm)
@@ -54,7 +53,7 @@ Furthermore the path and the destination are one and the same. From the get-go o
 
 [http://actualfreedom.com.au/sundry/frequentquestions/FAQ63a.htm](http://actualfreedom.com.au/sundry/frequentquestions/FAQ63a.htm)  
   
- _... By asking ‘how am I experiencing this moment of being alive’ the reward is immediate; by finding out what triggered off the loss of the felicitous/ innocuous feelings, one commences another period of enjoying and appreciating this moment of being alive. It is all about being here at this moment in time and this place in space ... and if you are not feeling happy and harmless you have no chance whatsoever of being here in this actual world \(a glum and/or grumpy person locks themselves out of the perfect purity of this moment and place\). And by having already established feeling good \(a general sense of well-being\) as the bottom line for moment-to-moment experiencing then if, or when, feeling happy and harmless fades there is that comfortable baseline from which to suss out where, when, how, why – and what for – the feeling of being happy and harmless ceased happening ... and all the while feeling good whilst going about it – Richard_ 
+> ... By asking ‘how am I experiencing this moment of being alive’ the reward is immediate; by finding out what triggered off the loss of the felicitous/ innocuous feelings, one commences another period of enjoying and appreciating this moment of being alive. It is all about being here at this moment in time and this place in space ... and if you are not feeling happy and harmless you have no chance whatsoever of being here in this actual world \(a glum and/or grumpy person locks themselves out of the perfect purity of this moment and place\). And by having already established feeling good \(a general sense of well-being\) as the bottom line for moment-to-moment experiencing then if, or when, feeling happy and harmless fades there is that comfortable baseline from which to suss out where, when, how, why – and what for – the feeling of being happy and harmless ceased happening ... and all the while feeling good whilst going about it – Richard
 
 ## Improving ones Baseline
 
@@ -81,7 +80,7 @@ The actualism method is an 'always on' method. One does not do it secluded on a 
 
 There are many, many times when one falls off the horse so to speak.  When this happens, often-times all one needs to do is to pinpoint the exact time one stopped feeling good and why.  Often \(but not always\) this is sufficient to nudge you to ask yourself whether you'd rather continue to feel bad for 'x' reason, rather than to feel good given that this is the only moment that you are alive. 
 
-  _... trace back by asking yourself such questions as: what happened 6/7 hours ago which occasioned me to cease feeling good? Where was I, back then? What was I doing/what was happening? Was I by myself/ was I with company? Once you start to recall where you were/what you were doing/what was happening/ who was there, and so on, just prior to ceasing to feel good you will find it a lot easier to pin-point the precise moment when those felicitous/innocuous feelings came to an end ... and, thus, just what it was which did that. In short: go back \(in memory\) to when you were last feeling good and then come forward, step-by-step, until that moment._
+> ... trace back by asking yourself such questions as: what happened 6/7 hours ago which occasioned me to cease feeling good? Where was I, back then? What was I doing/what was happening? Was I by myself/ was I with company? Once you start to recall where you were/what you were doing/what was happening/ who was there, and so on, just prior to ceasing to feel good you will find it a lot easier to pin-point the precise moment when those felicitous/innocuous feelings came to an end ... and, thus, just what it was which did that. In short: go back \(in memory\) to when you were last feeling good and then come forward, step-by-step, until that moment.
 
 _-Richard_  
   
