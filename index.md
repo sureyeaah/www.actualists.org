@@ -52,6 +52,6 @@ The following pieces on the AFT website should help get you started:
 
 ### Searching the site:
 
-If you are curious about a topic in particular, then the best way to search the site is to take advantage of google's highly developed search algorithm. For example, if you are interested in 'love', then google: [site:actualfreedom.com.au love](https://www.google.com/webhp?sourceid=chrome-instant&ion=1&espv=2&ie=UTF-8#q=site%3Aactualfreedom.com.au%20love)
+If you are curious about a topic in particular, then the best way to search the site is to take advantage of google's highly developed search algorithm. For example, if you are interested in 'love', then google: [site:actualfreedom.com.au love](https://lmgtfy.com/?q=site%3Aactualfreedom.com.au+love)
 
 We strongly recommend that you not get your information from other sources or Wikis online and most definitely not the dharmaoverground.org, whose practitioners have tried to fuse actualism with their own brand of 'hardcore' Buddhist meditation and  enlightenment practises in a syncretistic manner with dubious and disappointing outcomes.
