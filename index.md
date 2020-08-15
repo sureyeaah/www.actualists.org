@@ -49,16 +49,6 @@ The following pieces on the AFT website should help get you started:
 * [Frequently Asked Questions](http://www.actualfreedom.com.au/sundry/frequentquestions/faqindex.htm), for general questions for somebody starting out.
 * [Commonly Raised Objections](http://www.actualfreedom.com.au/sundry/commonobjections/croindex.htm). If you find yourself objecting to something, check here first as it has likely come up already.
 * [Frequently Flogged Misconceptions](http://actualfreedom.com.au/sundry/floggedmisconceptions/ffmindex.htm). If you find yourself disagreeing with what is written on the website, check here first as it is likely a misconception and has been addressed already.
-* [An Introduction to Actual Freedom](http://actualfreedom.com.au/introduction/index.htm): a full introduction, going into what the problem is in the first place and what the solution is.
-* [An Actualist's Guide to the Wide and Wondrous Path](http://actualfreedom.com.au/actualism/path2.htm)
-* [This Moment of Being Alive](http://actualfreedom.com.au/richard/articles/thismomentofbeingalive.htm), detailing what the actualism method is and ways to facilitate applying it.
-* [The Third Alternative Home Page](http://actualfreedom.com.au/richard/default.htm)
-* [A Précis of the Method of Actualism](http://actualfreedom.com.au/actualism/path1.htm), complete with links into the topic pages.
-* [Richard's Personal Webpage](http://an.actualfreedom.com.au/), an overview of how actualism came to be developed by Richard
-* [The Library](http://www.actualfreedom.com.au/library/), a list of all topic pages on the website.
-* [Frequently Asked Questions](http://www.actualfreedom.com.au/sundry/frequentquestions/faqindex.htm), for general questions for somebody starting out.
-* [Commonly Raised Objections](http://www.actualfreedom.com.au/sundry/commonobjections/croindex.htm). If you find yourself objecting to something, check here first as it has likely come up already.
-* [Frequently Flogged Misconceptions](http://actualfreedom.com.au/sundry/floggedmisconceptions/ffmindex.htm). If you find yourself disagreeing with what is written on the website, check here first as it is likely a misconception and has been addressed already.
 
 ### Searching the site:
 
