@@ -53,14 +53,6 @@ The idea is that you want to gradually delight more and more in sensuousness, th
   
 #### Step 4: Progressing gradually from feeling good to feeling perfect. Inducing a PCE proper.
   
-One taps into one's naivete, one's intention to delight and gradually ups one's baseline mood until there is an experience of swimming in sensuous delight. It might take several goes, before you have a PCE, so don't be frustrated. Try and set aside the expectation of an outcome as this will just take you away from enjoying this moment.   
-  
-You want to get into your senses and to relish and savour whatever sensory experience is on offer. Most often it is easiest to start with the eyes, let your eyes fall gently on whatever is in your purview. Have them 'caress' whatever is around you that is appealing. It might be the blue sky, a tree, a pebble on the ground, a bowl on your desk. See with the very 'surface of the eyeballs as  it were'. Initially there may be only or two things that produce a sensuous pleasure. See if you can gradually take pleasure in seeing other things. Bring the other senses into it hearing, touch, taste, smell. Hearing and touch especially. You want your whole body to be caught up with the pleasure of the senses. If you get any worries or anxieties, see if you can set them aside. If they are persistent you may need to spend a little time examining them before you dispatch them, but do so without too much effort. The idea is to get back to sensuosity.    
-  
-You move incrementally and gradually through these stages below. You are gradually 'turning up' the level of enjoyment and wonder as you do so:
-
-#### Step 4: Progressing gradually from feeling good to feeling perfect. Inducing a PCE proper.
-  
 Okay so let's get down to actually having \(or more correctly allowing\) a PCE.  
   
 One taps into one's naivete, one's intention to delight and gradually ups one's baseline mood until there is an experience of swimming in sensuous delight. It might take several goes, before you have a PCE, so don't be frustrated. Try and set aside the expectation of an outcome as this will just take you away from enjoying this moment.   
