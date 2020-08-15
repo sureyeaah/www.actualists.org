@@ -27,13 +27,7 @@ Also a PCE is just a buttload of fun. It is a wondrous, fascinating and delightf
 
 ## **How Do I Have a PCE?**
 
-**Step 1: Building an intent to have them by reading about them. remembering and rememorating**  
-  
-PCEs can very often occur spontaneously. As mentioned as young children we all have them quite commonly. Some lucky adults have them reasonably often without too much trouble. It seems like most adults experience them rarely though – and even if they do, can't really recall them.   
-  
-Go through the experiences described in the AFT website [**here**](http://actualfreedom.com.au/actualism/others/corr-pce.htm) and try and remember if you have ever had something like a PCE. The operative worlds are: magical, delightful, simple, clear, fresh, naive, innocent. Sometimes people have PCE-like experiences on psychedelics, during hypnagogic or lucid dreams and even during open-eyed meditative practices. These are trickier to use as referents, but all grist for the mill, given that the idea is to eventually have an absolutely incontrovertible experience that leaves you in no doubt.
-
-Step 1: Building an intent to have them by reading about them. remembering and **rememorating**[^rem]  
+**Step 1: Building an intent to have them by reading about them. remembering and rememorating**[^rem]  
   
 PCEs can very often occur spontaneously. As mentioned as young children we all have them quite commonly. Some lucky adults have them reasonably often without too much conscious effort. It seems like most adults experience them rarely though – and even if they do, can't really recall them.   
   
