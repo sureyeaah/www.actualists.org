@@ -27,7 +27,7 @@ Also a PCE is just a buttload of fun. It is a wondrous, fascinating and delightf
 
 ## **How Do I Have a PCE?**
 
-**Step 1: Building an intent to have them by reading about them. remembering and rememorating**[^rem]  
+#### Step 1: Building an intent to have them by reading about them. remembering and rememorating[^rem]  
   
 PCEs can very often occur spontaneously. As mentioned as young children we all have them quite commonly. Some lucky adults have them reasonably often without too much conscious effort. It seems like most adults experience them rarely though – and even if they do, can't really recall them.   
   
@@ -35,13 +35,13 @@ Go through the experiences described in the AFT website [**here**](http://actual
   
 [^rem]: > Rememoration: While PCEs don't lend themselves to being remembered in a lucid way, due to their lack of emotional content one can attune one's mind towards them by trying to recollect them, while anticipating that one can have one right now. One's antennae are thus on the look out for a PCE in the present. As you anticipate that you will have them , there is a striking sense of familiarity when you are on the verge of a PCE or EE happening . Like you're going 'hold on .... I recognize this! Hence even if you don't have an explicit memory as such, there is a hidden memory that will come to the fore when one makes contact with actuality in the present. 
   
-**Step 2: Setting aside regular times to have PCEs. Locations**   
+#### Step 2: Setting aside regular times to have PCEs. Locations
   
 It is vital that you set aside time, ideally a few times a week for an hour or two. However whatever you can manage is good. Think of these as fun breaks rather than something akin to a  serious meditation practise; a chance to get away from yourself and to take a break from your problems.   
   
 Being in nature helps, but really anywhere that you feel comfortable. PCEs can occur in apartments, toilets, at bus-stops, in national parks, on mountains, beaches –literally anywhere. You'll need to experiment a bit to see where you feel your having the most luck.
 
-**Step 3: Having the right orientation, attitude, intention**  
+#### Step 3: Having the right orientation, attitude, intention
   
 You want to make yourself a bit like a child, soft and relaxed. Tell yourself you are going to have a mini-holiday for a short time. Believe that it can happen, rather than thinking of it as some kind of 'advanced' thing that happens only to others. Adopt an attitude of openness and curiosity, of an intention to delight in your senses. See if you can notice any pleasurable feelings, if so relish and savour them. Do it in a really loose playful way. Whatever catches your interest go for that. Look at things with ‘the surface of your eyeballs’. Like your eyes are caressing, drinking, tasting the surfaces of whatever you encounter. You might start to notice a change in the atmosphere around you, notice this if so and see if you can enjoy it. If there is a feeling that you want to laugh, squeal or make noises then just allow yourself to do that like a kid would – might be hard if there are people around!  
   
@@ -51,7 +51,7 @@ The idea is that you want to gradually delight more and more in sensuousness, th
 >
 > – Srinath  
   
-**Step 4: Progressing gradually from feeling good to feeling perfect. Inducing a PCE proper.**   
+#### Step 4: Progressing gradually from feeling good to feeling perfect. Inducing a PCE proper.
   
 One taps into one's naivete, one's intention to delight and gradually ups one's baseline mood until there is an experience of swimming in sensuous delight. It might take several goes, before you have a PCE, so don't be frustrated. Try and set aside the expectation of an outcome as this will just take you away from enjoying this moment.   
   
@@ -59,7 +59,7 @@ You want to get into your senses and to relish and savour whatever sensory exper
   
 You move incrementally and gradually through these stages below. You are gradually 'turning up' the level of enjoyment and wonder as you do so:
 
-**Step 4: Progressing gradually from feeling good to feeling perfect. Inducing a PCE proper.**   
+#### Step 4: Progressing gradually from feeling good to feeling perfect. Inducing a PCE proper.
   
 Okay so let's get down to actually having \(or more correctly allowing\) a PCE.  
   
