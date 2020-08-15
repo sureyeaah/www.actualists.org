@@ -29,7 +29,7 @@ Be warned though, this is not a practise for the faint hearted or the dilettante
 
 ## How do I talk to other actualists?
 
-Join the [Slack chat](https://forms.gle/Rq8mm7LCaqkLz4jUA) \(private\) - we recommend an attitude of enthusiasm, openness, curiosity and a willingness to have one's beliefs challenged. Post an introduction in `#beginners_and_basics` or `#general` channel when you sign up.
+Join the [Zulip chat](https://actualism.zulipchat.com/) \(private\) - we recommend an attitude of enthusiasm, openness, curiosity and a willingness to have one's beliefs challenged. Post an introduction in the `#actualism` stream when you sign up.
 
 ## Any Other Sources of Information?
 
