@@ -31,5 +31,5 @@ Actual time is neither of these things.
 
 ## From the AFT Website
 
-[Time - Library Topic](http://www.actualfreedom.com.au/library/topics/time.htm)  
-[Richard's Selected Correspondence on Time](http://www.actualfreedom.com.au/richard/selectedcorrespondence/sc-time.htm)
+- [Time - Library Topic](http://www.actualfreedom.com.au/library/topics/time.htm)  
+- [Richard's Selected Correspondence on Time](http://www.actualfreedom.com.au/richard/selectedcorrespondence/sc-time.htm)
